@@ -1,0 +1,29 @@
+- Once upon a time at seventeen,
+- I was in a hospital scene
+- Broken bones and shattered dreams,
+- A mess of blood and surgical seams.
+- 
+- My face once fair and full of grace,
+- Now patched with steel and out of place.
+- Lungs filled with blood, a life unknown,
+- A nightmare of pain that I had flown.
+- 
+- The driver of the car, my dear friend
+- Someone I loved, until the bitter end
+- We lost each other in a haze of confusion
+- And their guilt led to our ultimate conclusion
+- 
+- I struggle to understand why they were there
+- What led us to that moment, so unfair
+- The memories are hazy, shrouded in doubt
+- But I know that day, our lives took a different route
+- 
+- Now, 37 years on, I am left with this pain
+- And I wonder if our friendship was all in vain
+- But I must forge ahead and live my life
+- Despite the turmoil and ongoing strife
+- 
+- I may be misjudged, misunderstood, and feared
+- But I am determined to persevere
+- For I am not just a victim of that fateful day
+- I am a survivor, in my own unique way.
